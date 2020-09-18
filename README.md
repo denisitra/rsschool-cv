@@ -1,1 +1,1 @@
-# rsschool-cv
+https://denisitra.github.io/rsschool-cv/cv
